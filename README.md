@@ -1,0 +1,7 @@
+- 👋 Hi, I’m JYOSHNA
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning C programming
+- 💞️ I’m looking to collaborate on apple
+- 📫 How to reach me 
+- 😄 Pronouns: 
+- ⚡ Fun fact: 
